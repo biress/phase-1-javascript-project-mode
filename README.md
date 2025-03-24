@@ -1,4 +1,4 @@
-# Phase 1 Project Guidelines
+ahmed.bwire@student.moringaschool.comahmed.bwire@student.moringaschool.com# Phase 1 Project Guidelines
 
 ## Learning Goals
 
